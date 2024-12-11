@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @GemiG2
 - 👀 I’m interested in balls
 - 🌱 I’m currently learning balls
-- 💞️ I’m looking to collaborate on nn
+- 💞️ I’m looking to collaborate on NNN
 - 📫 How to reach me nuh uh
-- 😄 Pronouns: balls
+- 😄 Pronouns: LIGMA balls
 - ⚡ Fun fact: im batman
 
 <!---
