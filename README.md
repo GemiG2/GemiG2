@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning balls
 - 💞️ I’m looking to collaborate on NNN
 - 📫 How to reach me nuh uh
-- 😄 Pronouns: LIGMA balls
+- 😄 LIGMA balls
 - ⚡ Fun fact: im batman
 
 <!---
